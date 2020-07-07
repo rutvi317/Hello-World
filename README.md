@@ -1,2 +1,2 @@
 # Hello-World
-Hie this is my first repository and I am still learning that how things work here
+Hie Rutvi this side. I am computer engineer.This is my first repository and I am still learning that how things work here
